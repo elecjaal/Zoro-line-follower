@@ -6,6 +6,6 @@
 
 FB page: https://www.facebook.com/MNBOT/
 
-Youtube Channel: youtube.com/channel/UCHTk-TZ_O2Iy2kEJUrpxCRA
+Youtube Channel: https://youtube.com/channel/UCHTk-TZ_O2Iy2kEJUrpxCRA
 
 
